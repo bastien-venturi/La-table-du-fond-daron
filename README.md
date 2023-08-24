@@ -4,3 +4,8 @@ La table du fond : exquisite-corpse
 >La patience est un plat qui se prépare à l'avance.
 
 ![patient](http://pecheur.info/wp-content/uploads/2014/01/kaamelott-peche.jpg)
+# Comme je manque d'inspiration je colle des blagues débiles que je trouve sur le net
+
+**Why did the computer crash?** It was a hard drive.
+**Why are people afraid of computers?** They byte.
+
